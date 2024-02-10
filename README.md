@@ -1,2 +1,2 @@
 # Vimal
-Studying 
+playing 
